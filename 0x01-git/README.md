@@ -1,2 +1,1 @@
-My second readme
-This seige is over
+From this day onwards, I am a conqueror and I am victorious in Christ!
